@@ -8,7 +8,7 @@ POWERFUL MUSIC BOT
 </h2>
 
 <p align="center">
-  <img src="https://graph.org/file/07ed030c570ac96efeddd.jpg">
+  <img src="https://graph.org/file/0266042e6015ecf583b56.jpg">
 </p>
 
 _**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [ᴏʟɪᴠɪᴀ ✘ ᴍᴜsɪᴄ](https://t.me/munna_x_sweety_bot)**_
